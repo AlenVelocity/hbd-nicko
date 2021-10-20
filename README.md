@@ -77,3 +77,11 @@ We all want you to know that we all love you and it has been a wonderful time be
 From knowing you as a sagiri simp to knowing more about you... though the sagiri simp part never fade away 🪄
 
 We all wish you the bestest, blissful birthday 🎉
+
+
+Happppy Birthday nicko 💓
+
+We all want you to know that we all love you and it has been a wonderful time being with you all this days...
+From knowing you as a sagiri simp to knowing more about you... though the sagiri simp part never fade away 🪄
+
+We all wish you the bestest, blissful birthday 🎉
