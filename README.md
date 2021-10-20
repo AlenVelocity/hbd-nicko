@@ -32,3 +32,11 @@ Deploy it to the cloud with [Vercel](https://vercel.com/new?utm_source=github&ut
 
 wishes
 
+[10/20, 22:26] Sunrockey: ʏᴏᴜʀ ɢʀᴀᴄᴇ, ʙᴇᴀᴜᴛʏ, ᴀɴᴅ sᴛʀᴇɴɢᴛʜ ɪɴsᴘɪʀᴇ ᴇᴠᴇʀʏ ᴅᴀʏ, ᴍʏ ʟᴏᴠᴇʟʏ ғʀɪᴇɴᴅ! ʜᴀᴘᴘʏ ʙɪʀᴛʜᴅᴀʏ ᴛᴏ ʏᴏᴜ..! ( ᴍʀ ɴɪᴄᴋᴏ).. ✨💙
+[10/20, 22:26] Arima: A very very happy birthday DARLINGGGGGG and have a wonderful year ahead 🎉✨ and always stay happy 💖✨ hope u fullfill all your wishes dis coming year 😍✨✨ anyways stay blessed and always keep smiling 😁✨✨ Enjoy your precious day  
+As we go along let dis bond get more strong enough 🤧 i am more than happy that i met u 💕 
+Love OMI 💖
+
+🎂🎂🎂🎂🎂🎂🎂🎂🎂🎂🎂🎂
+🎊🎊🎊🎊🎊🎊🎊🎊🎊🎊🎊🎊
+🥂🥂🥂🥂🥂🥂🥂🥂🥂🥂🥂🥂
