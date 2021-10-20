@@ -3,7 +3,8 @@
   "scripts": {
     "dev": "next dev",
     "build": "next build",
-    "start": "next start"
+    "start": "next start",
+    "fmt": "prettier --config .prettierrc \"./**/*.tsx\" --write"
   },
   "dependencies": {
     "@types/tailwindcss": "^2.2.1",
