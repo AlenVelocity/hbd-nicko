@@ -88,6 +88,14 @@ We all wish you the bestest, blissful birthday 🎉
   
   
         </Card>
+
+        <Card name='Tamashii' head="Happy Birthday Nickoo" img='/9.jpg'>
+        
+        *Happy Birthday Nickoooo*🎂🎉...Have A Wonderful Yearrrrr🎐♥️✨, Enjoy your day!!!
+Be Happy! May you be given more birthdays to fulfill all of your dreams!”
+    
+    
+          </Card>
   
 
       </div>
