@@ -65,3 +65,7 @@ With lots of lobs and pats
 
 
 Happpppppyyy birthdayy my nickudi lets make a baby now uwuw love uuuuuuu nickudi day with da cake
+
+
+Happy birthday to an amazing guy! You're a genuine chef-d'oeuvre in an average world. May your big day be extraordinary in every way, just like you are... 
+Love you Rem!🎂♥️
