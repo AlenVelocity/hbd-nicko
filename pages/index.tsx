@@ -47,7 +47,7 @@ Love OMI 💖
 
       </Card>
 
-      <Card name='Dore' head="Happy Birthday Nicko-Chan!" img='/5.jpg'>
+      <Card name='Dore' head="Sagiri Simper!!!" img='/5.jpg'>
       I can write a paragraph desu.
 Nicko love sagiri
 Sagiri love Nicko.
