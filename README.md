@@ -69,3 +69,11 @@ Happpppppyyy birthdayy my nickudi lets make a baby now uwuw love uuuuuuu nickudi
 
 Happy birthday to an amazing guy! You're a genuine chef-d'oeuvre in an average world. May your big day be extraordinary in every way, just like you are... 
 Love you Rem!🎂♥️
+
+
+Happppy Birthday nicko 💓
+
+We all want you to know that we all love you and it has been a wonderful time being with you all this days...
+From knowing you as a sagiri simp to knowing more about you... though the sagiri simp part never fade away 🪄
+
+We all wish you the bestest, blissful birthday 🎉
